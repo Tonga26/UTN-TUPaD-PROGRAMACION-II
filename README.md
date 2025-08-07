@@ -1,4 +1,4 @@
-💻 Programación 2
+💻 PROGRAMACIÓN 2
 
 Tecnicatura Universitaria en Programación
 
